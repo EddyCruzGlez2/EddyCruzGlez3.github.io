@@ -1,1 +1,3 @@
-# EddyCruzGlez3.github.io
+# Gonzalez Cordero Victoria
+# Euan Coox Lesly
+# Gonzalez Cruz Eddy
